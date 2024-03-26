@@ -21,3 +21,8 @@ SO THAT I can organize and plan my business
 
 
 ![Terminal in Use](https://github.com/NebulaEclipse/Week-12-Employee-Tracker/assets/147276811/c924bd13-b8ec-4ada-8516-789cede9b587)
+
+https://github.com/NebulaEclipse/Week-12-Employee-Tracker/assets/147276811/e9cbbbfe-bdce-452f-a526-cbdf90d165b2
+
+
+
